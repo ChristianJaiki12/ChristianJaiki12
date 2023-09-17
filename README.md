@@ -1,4 +1,4 @@
-![Mi Banner](https://res.cloudinary.com/dp7lr71t8/image/upload/v1694982705/Grey_Minimalist_Modern_Social_Media_Specialist_LinkedIn_Banner_1_rfspoh.png)
+![Mi Banner](https://res.cloudinary.com/dp7lr71t8/image/upload/v1694984801/Grey_Minimalist_Modern_Social_Media_Specialist_LinkedIn_Banner_lnb2ze.gif)
 
 ### Hi there 👋
 
